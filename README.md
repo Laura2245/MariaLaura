@@ -29,5 +29,5 @@
 ---
 
 ### 📫 Entre em contato:
-- ✉️ marialaurasantana89@email.com 
+- ✉️ marialaurasantana89@gmail.com 
 - 💼 [LinkedIn](https://www.linkedin.com/in/maria-laura-73a990202?trk=contact-info)
